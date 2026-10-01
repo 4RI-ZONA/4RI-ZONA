@@ -7,7 +7,7 @@ ${\textsf{\color{#124862}︵︵ .}}$ <a href="https://hits.sh/github.com/4RI-ZON
 <p align="center">
 ${\textsf{\color{#124862}🔆  𓏼 ◜ Trickery Lurks In The Shadows ╰╮ . 〢 }}$
 
-${\textsf{\color{#293d6f}┈﹒ᘏᘏ﹒ Arizona / SMC 結﹒✦ᩚ֞🔹水՞ՙ He/They . [IWC], DO NOT COPY MY SKINS. Inspo accepted﹑❀̶๑ 𓆩⿻ }}$
+${\textsf{\color{#293d6f}┈﹒ᘏᘏ﹒ Arizona /Solace / Shamil 結﹒✦ᩚ֞🔹水՞ՙ He/They . [IWC], DO NOT COPY MY SKINS. Inspo accepted﹑❀̶๑ 𓆩⿻ }}$
 ${\textsf{\color{#293d6f}⪩谷⪨﹐𑁯🃏ん﹒OSC / CRK / DW ﹒ᕗ﹒︶꒦꒷﹒୨ᕦ}}$
 
 
